@@ -1,2 +1,0 @@
-# bsmbruno.github.io
-
